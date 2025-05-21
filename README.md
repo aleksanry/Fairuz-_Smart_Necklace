@@ -29,9 +29,11 @@ Fairuzé transcends ordinary smart jewelry by embodying the protective instinct 
 
 ## About Fairuzé
 
-Fairuzé is more than a piece of jewelry—it's a guardian companion that grows alongside your child, fostering safety, understanding, and emotional growth through a seamless blend of wearable technology and AI-driven insights.
+Fairuzé is more than a piece of jewelry ,it's a guardian companion that grows alongside your child, fostering safety, understanding, and emotional growth through a seamless blend of wearable technology and AI-driven insights.
 
 ---
 
-For more information, visit the official [Fairuzé website](#) or download the ParentInsight™ app to begin your journey toward intuitive caregiving.
+Girls product  :  
+![Fairy](https://github.com/user-attachments/assets/dc8af858-6ad4-4d20-bb53-1a81e4759bbf)
+
 
